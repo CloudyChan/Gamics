@@ -1,6 +1,6 @@
    Gamics - Create Manage Matches         
 
-Exclusive Halloween Offer! 🎃 16 Days Remaining
+Exclusive Halloween Offer! 🎃   16 Days Remaining
 
 Follow us on :
 
