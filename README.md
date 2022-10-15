@@ -1,6 +1,6 @@
    Gamics - Create Manage Matches         
 
-Exclusive Back To School Offer! 10 Days Remaining
+Exclusive Halloween Offer! 🎃 16 Days Remaining
 
 Follow us on :
 
